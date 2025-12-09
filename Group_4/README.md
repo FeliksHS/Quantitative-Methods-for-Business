@@ -1,1 +1,4 @@
-Flora Antal, Adam Balogh and Hubert Stelmasiak
+Flora Antal
+Adam Balogh
+Hubert Stelmasiak
+qm qm qm for my life
